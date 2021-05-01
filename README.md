@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @darkinnn
-- 👀 I’m interested in work in websites
+- 👀 I’m interested in work websites
 - 🌱 I’m currently learning automation
 - 📫 How to reach me darkinnn1@gmail.com
